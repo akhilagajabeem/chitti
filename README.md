@@ -1,0 +1,2 @@
+# chitti
+goodcommniction  skills
